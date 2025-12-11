@@ -2,4 +2,4 @@
 
 ## My name is Thamakorn
 
-### I'm LFC supporter
+### I'm DST students
