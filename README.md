@@ -2,4 +2,4 @@
 
 ## My name is Thamakorn
 
-### I'm DST student
+### DST student
